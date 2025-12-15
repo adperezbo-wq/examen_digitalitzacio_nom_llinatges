@@ -2,3 +2,4 @@
 # examen_digitalitzacio_nom_llinatges2
 # examen_digitalitzacio_nom_llinatges2
 # examen_digitalitzacio_nom_llinatges2
+# examen_digitalitzacio_nom_llinatges2
